@@ -1,0 +1,1 @@
+Suddenly became a new Time Keeper. She was rumored to have risen to that position in a very short time-frame. Though she were head of a new branch with the title of Head of Research which was known to recruit many, she didn't really recruit anyone. 

@@ -1,0 +1,11 @@
+# The City
+One of the few cities w/ a ruler.  Rulers are usually known as the very top scholar, but the current king is viewed as childish / immature. He tends to jump to conclusions and his ruling is not looked upon favorably. Historically, they wanted to share knowledge, but the current king sees knowledge as something to be hoarded. 
+
+# The Council
+They had a council called the Council of Nature's Time which is a council nominated personally by king to be his aides whose members were called Time Keepers. . Anything to do w/ king goes through them. When nominated you are assigned to a branch in time (You're in charge of something specific in the city). Topics of branches depending on what is needed at any given time.
+
+# The Sanctuary
+Elara's Sanctuary is a gigantic hollowed out tree near the top of the city. It is well known as Epitome of knowledge. The inside feels even larger than the outside, but you can return to the entrance at will as if the tree is warping space itself. It's one of the biggest mysteries in all of Solaria.
+
+# The New Kings Changes
+The new king made big changes in a way no one expected.  No one could enter the sanctuary without direct permission from a council member. The council members needed permission from the king to allow anyone in the sanctuary and if it was allowed they were given a key / gem (varied for temp / permanent access). King established new law that everyone in the city must be a scholar. This was met with major backlash b/c while scholars were prided in the city others still lived there. This boiled into severe rioting 1/2 times a week for a month. People throughout the Brightlands traveled to Nature's Time to protest this law. Eventually the law was changed to allow anyone, but the scholars were held as more important. Began a span of ~5 years known as the Years of the Rotting Clock. The city slowly evolved to have upper class scholars, middle class workers, and lower class slums due to a tax placed on non-scholars. The city is now known as a city of greed.

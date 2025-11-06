@@ -1,0 +1,7 @@
+{
+  "catppuccin-theme-settings@@catppuccin-theme-dark": "ctp-macchiato",
+  "catppuccin-theme-settings@@catppuccin-theme-accents": "ctp-accent-lavender",
+  "catppuccin-pdf@@ctp-seamless-pdf": true,
+  "catppuccin-pdf@@ctp-pdf-darken": false,
+  "catppuccin-pdf@@ctp-pdf-blend": true
+}

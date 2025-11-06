@@ -1,0 +1,1 @@
+He went through very similar experiences. His family was in the middle class and they acted as a semi-successful, pseudo police force who occasionally helped out in the slums. He knew who I was, but he thought even if my father was a killer that doesn't mean I was too.  
